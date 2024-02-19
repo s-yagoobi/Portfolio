@@ -5,4 +5,4 @@
 ## Education
 - Ph.D., Physics | Isfahan University of Technology (_January 2018_)								       		
 - M.S., Physics	| Isfahan University of Technology  (_March 2013_)	 			        		
-- B.S., Physics | Shahrekord University  (_May 2017_)
+- B.S., Physics | Shahrekord University  (_January 2009_)
